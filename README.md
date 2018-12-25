@@ -2,7 +2,6 @@
 
 BLISS/STALKER/MINE
 
-
 13 Always present, reckless smoking, staring, feeling empty rooms +1 ---
 
 10 Racking scars on my soul, such a stealth move +4 -
