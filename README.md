@@ -11,9 +11,9 @@ BLISS/STALKER/MINE
 
 watching what you mean, watching what you do 
 I'm never through with bliss, stalkin' what you do
-I'm never through with you
+(I'm never through with you)
 
-ignoring what i mean, watching what i do
+(ignoring what i mean, watching what i do)
 
 Omnipresent subject, no criminal ties (?)
 Gouge my eyes, gouge my heart, let me die
