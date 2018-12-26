@@ -30,3 +30,5 @@ cast on the net, coded sys, by now you are mine (?)
 gotta tune and record the vocal to proper timing from the instastory (that fit perfectly)
 
 Network bliss
+
+/
