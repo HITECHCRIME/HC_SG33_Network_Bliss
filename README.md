@@ -15,11 +15,14 @@ subliminal lies, check the time in my mind
 fuck the social since - it became so focal
 networks rise and fall, i still scroll through it all
 cast on the net, coded sys, by now you're mine / seeing lies
+
+distant eye watching close
+
 omnipresent subject, no criminal ties (?)
 gouge my eyes, gouge my heart, let me die
 let me run for the night, let me show the sparks
 see you shine, access or no access ain't no try
-distant eye watching close
+
 
 [CHORUS]
 always present, reckless smoking, staring, feeling empty rooms --- (13)
