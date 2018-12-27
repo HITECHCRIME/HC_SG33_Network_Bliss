@@ -7,19 +7,18 @@ always there, reckless smoking, staring, feeling empty rooms (13)
 racking scars on my soul, such a stealth move (10)
 split mind, naked walls, truly wishing it was you (12)
 i'm never through with bliss, stalkin' what you do (11)
-watching what you mean, watching what you do 
+watching what ya mean, watching what ya do 
 i'm never through with bliss, stalkin' what you do
 
 [VERSE 1]
 subliminal lies, check the time in my mind
 fuck the social since - it became so focal
 networks rise and fall, i still scroll through it all
-cast on the net, coded sys seeing lies
+cast on the net, coded sys, by now you're mine / seeing lies
 omnipresent subject, no criminal ties (?)
 gouge my eyes, gouge my heart, let me die
 let me run for the night, let me show the sparks
 see you shine, access or no access ain't no try
-by now you are mine (?)
 distant eye watching close
 
 [CHORUS]
