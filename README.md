@@ -30,7 +30,7 @@ i'm never through with bliss, stalkin' what you do (11)
 watching what you mean, watching what you do 
 i'm never through with bliss, stalkin' what you do
 
-you're my prize yeah
+(you're my prize yeah)
 
 
 
