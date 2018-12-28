@@ -11,10 +11,11 @@ watching what ya mean, watching what ya do (anticipating what you do)
 i'm never through with bliss, stalkin' what you do
 
 [VERSE 1]
-omnipresent subject, no criminal ties (?)
+no criminal ties (?) omnipresent subject 
 gouge my eyes, gouge my heart, let me die
 let me run for the night, let me show the sparks
 see you shine, access or no access ain't no try
+
 subliminal lies, check the time in my mind
 fuck the social since - it became so focal
 networks rise and fall, i still scroll through it all
