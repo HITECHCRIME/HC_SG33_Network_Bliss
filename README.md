@@ -11,7 +11,7 @@ watching what ya mean, watching what ya do (anticipating what you do)
 i'm never through with bliss, stalkin' what you do
 
 [VERSE 1]
-no criminal ties (?) omnipresent subject 
+omnipresent subject, no criminal ties (?) 
 gouge my eyes, gouge my heart, let me die
 let me run for the night, let me show the sparks
 see you shine, access or no access ain't no try
