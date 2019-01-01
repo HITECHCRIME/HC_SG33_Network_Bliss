@@ -11,25 +11,27 @@ watching what ya mean, watching what ya do (anticipating what you do)
 i'm never through with bliss, stalkin' what you do
 
 [VERSE 1]
-omnipresent subject, no criminal ties, go ahead (?) 
+omnipresent subject, no criminal ties, go ahead (?) no intentions (?)
 gouge my eyes, gouge my heart, let me die
 let me run for the night, let me show the sparks
-see you shine, access or no access ain't no try
+see your object shine, access or no access ain't no try
 
-subliminal lies, check the time in my mind
-fuck the social since - it became so focal
-networks rise and fall, i still scroll through it all
-cast on net with coded sys, overlay is such a bliss
+
 
 (subliminal lies, check the time in my mind
 fuck the social since - it became so focal
 networks rise and fall, cast on net with coded sys
 i still scroll through it all, overlay is such a bliss) ???
 
+
+subliminal lies, check the time in my mind
+fuck the social since - it became so focal
+networks rise and fall, i still scroll through it all
+cast on net with coded sys, overlay is such a bliss
 spreading wrong intentions with no visible remorse 
 in a broken edgeless mirror you're stuck - ya
 cutting through the data's path of choice
-(right,) their attention drops, viewers out of luck
+(right,) their attention drops, viewer out of luck
 
 i'm still here 
 distant eye watching close
