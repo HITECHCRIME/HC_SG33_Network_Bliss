@@ -16,14 +16,6 @@ gouge my eyes, gouge my heart, let me die
 let me run for the night, let me show the sparks
 see your object shine, access or no access ain't no try
 
-
-
-(subliminal lies, check the time in my mind
-fuck the social since - it became so focal
-networks rise and fall, cast on net with coded sys
-i still scroll through it all, overlay is such a bliss) ???
-
-
 subliminal lies, check the time in my mind
 fuck the social since - it became so focal
 networks rise and fall, i still scroll through it all
@@ -35,6 +27,11 @@ cutting through the data's path of choice
 
 i'm still here 
 distant eye watching close
+
+(subliminal lies, check the time in my mind
+fuck the social since - it became so focal
+networks rise and fall, cast on net with coded sys
+i still scroll through it all, overlay is such a bliss) ???
 
 [CHORUS]
 always present, reckless smoking, staring, feeling empty rooms --- (13)
