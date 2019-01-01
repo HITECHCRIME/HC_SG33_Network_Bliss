@@ -19,9 +19,16 @@ see you shine, access or no access ain't no try
 subliminal lies, check the time in my mind
 fuck the social since - it became so focal
 networks rise and fall, i still scroll through it all
-cast on the net (with) coded sys, (spreading wrong intentions) 
+cast on net with coded sys, overlay bliss
+
 by now you're mine / seeing lies
 
+spreading wrong intentions with no visible remorse 
+in a broken edgeless mirror you're stuck - ya
+cutting through the data, a path of choice
+their attention drops, viewers out of luck
+
+i'm still here 
 distant eye watching close
 
 [CHORUS]
