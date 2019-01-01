@@ -21,7 +21,10 @@ fuck the social since - it became so focal
 networks rise and fall, i still scroll through it all
 cast on net with coded sys, overlay is such a bliss
 
-by now you're mine / seeing lies
+(subliminal lies, check the time in my mind
+fuck the social since - it became so focal
+networks rise and fall, cast on net with coded sys
+i still scroll through it all, overlay is such a bliss) ???
 
 spreading wrong intentions with no visible remorse 
 in a broken edgeless mirror you're stuck - ya
@@ -40,7 +43,7 @@ watching what you mean, watching what you do
 i'm never through with bliss, stalkin' what you do
 
 (you're my prize yeah)
-
+by now you're mine / seeing lies
 
 
 ---
