@@ -11,7 +11,7 @@ watching what ya mean, watching what ya do (anticipating what you do)
 i'm never through with bliss, stalkin' what you do
 
 [VERSE 1]
-omnipresent subject, no criminal ties (?) 
+omnipresent subject, no criminal ties, go ahead (?) 
 gouge my eyes, gouge my heart, let me die
 let me run for the night, let me show the sparks
 see you shine, access or no access ain't no try
@@ -26,7 +26,7 @@ by now you're mine / seeing lies
 spreading wrong intentions with no visible remorse 
 in a broken edgeless mirror you're stuck - ya
 cutting through the data, a path of choice
-their attention drops, viewers out of luck
+(right,) their attention drops, viewers out of luck
 
 i'm still here 
 distant eye watching close
