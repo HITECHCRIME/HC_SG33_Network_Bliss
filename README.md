@@ -19,7 +19,7 @@ see you shine, access or no access ain't no try
 subliminal lies, check the time in my mind
 fuck the social since - it became so focal
 networks rise and fall, i still scroll through it all
-cast on the net (with) coded sys, 
+cast on the net (with) coded sys, (spreading wrong intentions) 
 by now you're mine / seeing lies
 
 distant eye watching close
