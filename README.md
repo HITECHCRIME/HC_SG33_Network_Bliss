@@ -43,6 +43,8 @@ i'm never through with bliss, stalkin' what you do
 
 (you're my prize yeah)
 by now you're mine / seeing lies
+breath arising, it's so fine
+heightened states
 
 
 ---
