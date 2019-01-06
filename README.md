@@ -1,6 +1,7 @@
 # HC_SG33_Stalker
 
-BLISS/STALKER/MINE
+BLISS/STALKER <-
+MINE
 
 [CHORUS]
 always there, reckless smoking, staring, feeling empty rooms (13)
