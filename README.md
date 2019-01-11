@@ -14,7 +14,7 @@ i'm never through with bliss, stalkin' what you do
 [VERSE 1]
 omnipresent subject, no criminal ties, go ahead (?) no intentions (?)
 gouge my eyes, gouge my heart, let me die
-let me run for the night, let me show the sparks
+let me run for the night, let me show (see) the sparks
 see your object shine, access or no access ain't no try
 
 subliminal lies, check the time in my mind
