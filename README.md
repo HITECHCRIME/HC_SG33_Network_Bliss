@@ -24,7 +24,7 @@ cast on net with coded sys, overlay is such a bliss
 spreading wrong intentions with no visible remorse 
 in a broken edgeless mirror you're stuck - ya
 cutting through the data's path of choice
-(right,) their attention drops, viewer out of luck
+(right,) their attention drops, viewers out of luck
 
 i'm still here 
 distant eye watching close
