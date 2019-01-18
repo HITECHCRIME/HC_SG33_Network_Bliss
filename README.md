@@ -15,7 +15,7 @@ i'm never through with bliss, stalkin' what you do
 omnipresent subject, no criminal ties, go ahead (?) no intentions (?)
 gouge my eyes, gouge my heart, let me die
 let me run for the night, let me show (see) the sparks
-see your object shine, access or no access ain't no try
+see your object (connections) shine, access or no access ain't no try
 
 subliminal lies, check the time in my mind
 fuck the social since - it became so focal
