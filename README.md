@@ -21,13 +21,11 @@ subliminal lies, check the time in my mind
 fuck the social since - it became so focal
 networks rise and fall, i still scroll through it all
 cast on net with coded sys, overlay is such a bliss
-spreading wrong intentions with no visible remorse 
-in a broken edgeless mirror you're stuck - ya
+spreading the wrong intentions with no visible remorse 
+in a broken edgeless mirror you are stuck - ya
 cutting through the data's path of choice
 (right,) their attention drops, viewers out of luck
-
-i'm still here 
-distant eye watching close
+i'm still here, distant eye watching close
 
 (subliminal lies, check the time in my mind
 fuck the social since - it became so focal
