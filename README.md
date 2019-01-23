@@ -3,6 +3,8 @@
 BLISS/STALKER <-
 MINE
 
+TOTAL MAKEOVER TIME
+
 [CHORUS]
 always there, reckless smoking, staring, feeling empty rooms (13)
 racking scars on my soul, such a stealth move (10)
