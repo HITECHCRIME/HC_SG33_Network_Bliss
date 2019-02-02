@@ -42,7 +42,7 @@ i'm never through with bliss, stalkin' what you do
 [VERSE 2]
 
 seeing lies, breath arising, it's so fine
-heightened states, 
+heightened states on my dime
 x
 x
 spreading the wrong intentions with no visible remorse 
