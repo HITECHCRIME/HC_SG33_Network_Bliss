@@ -4,6 +4,8 @@ BLISS/STALKER <-
 MINE
 
 TOTAL MAKEOVER TIME
+need to rerecord everything
+and change the structure
 
 [CHORUS]
 always present, reckless smoking, staring, feeling empty rooms (13)
