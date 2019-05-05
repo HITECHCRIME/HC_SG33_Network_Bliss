@@ -7,7 +7,7 @@ TOTAL MAKEOVER TIME
 
 [CHORUS]
 always present, reckless smoking, staring, feeling empty rooms (13)
-racking scars on my soul, such a stealth move (10)
+racking scars on my soul, such a stealth move (10)  
 split mind, naked walls, truly wishing it was you (12)
 i'm never through with bliss, stalkin' what you do (11)
 watching what ya mean, watching what ya do
